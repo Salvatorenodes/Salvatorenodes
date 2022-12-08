@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Salvatorenodes
-- 👀 I have 2 years of experience with crypto projects. I am an ambassador, moderator, node operator, investor and NFT collector
+- 👀 Ambassador, moderator, node operator, investor and NFT collector
 - 📫 my.lpochta77@gmail.com
