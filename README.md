@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Salvatorenodes
-- 👀 Ambassador, moderator, node operator, investor and NFT collector
-- 📫 my.lpochta77@gmail.com
+- 👋
+- 👀 
+- 📫 
